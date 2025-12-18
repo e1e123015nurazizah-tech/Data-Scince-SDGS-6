@@ -1,1 +1,0 @@
-# Data-Scince-SDGS-6
